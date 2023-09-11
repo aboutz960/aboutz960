@@ -1,8 +1,8 @@
- - 👋 Hi, I’m @aboutz960
+  - 👋 Hi, I’m @aboutz960
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...h wrtrt g re gregh y3434y34yy34  fdj yjytj
-- 📫 How to reach me ...1-1643ret uer56uу кпуц 6 tyuh er jdytcdhs kyu
+- 📫 How to reach me ...1-1643ret uer56uу кпуц 6 tyuh er jdytcdhs kyui7ie6 dtjy
 683566543udtu wthrrhxjfga errehrthtrehetr ewr рке ter trteterterter
 <!---fykuetyug er ergre
 aboutz960/aboutz960 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
